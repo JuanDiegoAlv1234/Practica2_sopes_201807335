@@ -7,7 +7,7 @@
 ### Primer Semestre 2022
 ###  Juan Diego Alvarado Salguero
 
-### Manual Tecnico
+### Manual Tecnicooooooooo
 
 
 ---
